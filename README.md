@@ -1,4 +1,4 @@
-### Hello there, you can call Death GOD 7 or just "SE7EN" as short. It's been a while since you were here.
+### Hello there, you can call Death GOD 7 or just "LOKEN" or "SE7EN" as short. It's been a while since you were here.
  
 **💬 [How to reach me?]**<br>
 - Hmm....lemme think... *"PRAY FOR ME"* maybe?  
